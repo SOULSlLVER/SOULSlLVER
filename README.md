@@ -1,4 +1,4 @@
-### Hi there 👋
+### ![alt text](https://thumbs.gfycat.com/DefiantKindAntipodesgreenparakeet-size_restricted.gif)  Welcome to my ab me!!!!
 
 <!--
 **SPLATANAS/SPLATANAS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
