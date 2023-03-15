@@ -1,16 +1,12 @@
-### ![alt text](https://thumbs.gfycat.com/DefiantKindAntipodesgreenparakeet-size_restricted.gif)  Welcome to my ab me!!!!
+### ![alt text](https://thumbs.gfycat.com/DefiantKindAntipodesgreenparakeet-size_restricted.gif) ｡･:*:･ﾟ★,｡･:*:*:･ﾟ✧｡･:*:･ﾟ★,｡･Welcome to my ab me
+-
+-- Hello! my name is Silver, Stanley or yk whatever you wanna call me! im a guy he/they pronouns 
+I like the games
+- splatoon 1 and 3 (i dont have 
+- every pokemon game
+- minecraft
+- overwatch
+- earthbound
+- sonic the hedgehog games ( especially unleashed )
 
-<!--
-**SPLATANAS/SPLATANAS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+im a silly little guy so uh keep that in mind fr!!! more info ab me on my rentry wink wink nudge nudge
