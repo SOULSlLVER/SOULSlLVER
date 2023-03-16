@@ -14,7 +14,7 @@ I like the following media
 - animal crossing o( ❛ᴗ❛ )o 
 - sonic the hedgehog games ( especially unleashed )
 ![divider](https://gifs.crd.co/assets/images/gallery03/595a975c.gif?v=d417d32b)![divider](https://gifs.crd.co/assets/images/gallery03/595a975c.gif?v=d417d32b)
-#### im a silly little guy so uh keep that in mind fr!!! more info ab me on my rentry wink wink nudge nudge ![ajja](https://i.imgur.com/BGH8mGH.gif) ![a](https://i.imgur.com/NcQaKt0.gif)
+#### im a silly little guy so uh keep that in mind fr!!! more info ab me on my rentry ~~wink wink nudge nudge~~ ![ajja](https://i.imgur.com/BGH8mGH.gif) ![a](https://i.imgur.com/NcQaKt0.gif)
 
 my **best buddies** are *jay* *gok(nba)* goop and kitt fr!!!1111! 💥💥❗👊 ![a](http://i11.photobucket.com/albums/a168/evelynregly/minigifs/smnet_clima1.gif)
 
