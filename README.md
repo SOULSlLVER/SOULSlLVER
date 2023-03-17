@@ -4,7 +4,7 @@
 ##### -- ![a](https://i.imgur.com/6lrGAEW.gif)Hello! my name is **Silver**, *Stanley* or yk whatever you wanna call me! im a guy he/they pronouns (o^▽^o)
 I like the following media
 - vocaloid ![miku miku ooeeeoo](https://i.imgur.com/1b1PrhY.gif) ![a](https://64.media.tumblr.com/tumblr_lsf2uxzRJ01qhwcy0.gif)
-- splatoon 1 and 3 (i dont have 
+- splatoon 1 and 3 (i dont have splat2) :(
 - every pokemon game ![0](https://gifs.crd.co/assets/images/gallery23/8bf41519.gif?v=d417d32b)
 - minecraft
 - parrapa the rapper ![s](http://i122.photobucket.com/albums/o260/mhilka/minigifs/fetch_048.gif)
