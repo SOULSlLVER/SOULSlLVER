@@ -30,3 +30,5 @@ my **best buddies** are *jay* *gok(nba)* goop and kitt fr!!!1111! 💥💥❗�
 
 ![alt text](https://i.imgur.com/pf7nt2U.png)  ![hi](https://i.imgur.com/epp3DE6.png) ![a](https://i.imgur.com/QNYIda6.gif) ![animal crossin](https://i.imgur.com/cszjpln.png) ![a](https://i.imgur.com/QYsbuIp.png) ![img](https://i.imgur.com/j3AQNJv.gif) ![p](https://i.imgur.com/PlzvNRV.png) ![rael](https://i.imgur.com/YGRGfay.gif) 
 
+
+### little updatey update WHAT THE HELL happened in my guest book
