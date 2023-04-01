@@ -1,7 +1,7 @@
 ![divider](https://gifs.crd.co/assets/images/gallery03/595a975c.gif?v=d417d32b)![divider](https://gifs.crd.co/assets/images/gallery03/595a975c.gif?v=d417d32b)
 ### ![alt text](https://thumbs.gfycat.com/DefiantKindAntipodesgreenparakeet-size_restricted.gif) ｡･:*:･ﾟ★,｡･:･ﾟ✧ ![a](https://i.imgur.com/d8fOJRi.gif):･ﾟ★,｡･Welcome to my ab me!! ![a](http://i11.photobucket.com/albums/a168/evelynregly/minigifs/mini158.gif)
 ![divider](https://gifs.crd.co/assets/images/gallery03/595a975c.gif?v=d417d32b)![divider](https://gifs.crd.co/assets/images/gallery03/595a975c.gif?v=d417d32b)
-##### -- ![a](https://i.imgur.com/6lrGAEW.gif)Hello! my name is **Silver**, *Stanley* or yk whatever you wanna call me! im a guy he/they pronouns (o^▽^o)
+##### -- ![a](https://i.imgur.com/6lrGAEW.gif)Hello! my name is **Silver** or whatever you wanna call me! im a guy he/they pronouns (o^▽^o)
 I like the following media ![vaporeon](https://64.media.tumblr.com/tumblr_ltv0jkwq2r1r2nnw5.gif)
 
 ![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png)vocaloid ![miku miku ooeeeoo](https://i.imgur.com/1b1PrhY.gif) ![a](https://64.media.tumblr.com/tumblr_lsf2uxzRJ01qhwcy0.gif)
