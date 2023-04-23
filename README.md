@@ -6,6 +6,8 @@ I like the following media ![vaporeon](https://64.media.tumblr.com/tumblr_ltv0jk
 
 ![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png)vocaloid ![miku miku ooeeeoo](https://i.imgur.com/1b1PrhY.gif) ![a](https://64.media.tumblr.com/tumblr_lsf2uxzRJ01qhwcy0.gif)
 
+![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png) GODZILLA AND MONSTERVERSE OHMYGOD!![a](https://64.media.tumblr.com/tumblr_lsf2uxzRJ01qhwcy0.gif)
+
 ![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png)splatoon 1 and 3 (i dont have splat2) :(
 
 ![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png) every pokemon game ![jessie..](https://64.media.tumblr.com/tumblr_me5qsoHzmU1r52dl9.gif) ![pikachu](https://64.media.tumblr.com/tumblr_me5po1kyXY1r52dl9.gif) ![JAMES!!](https://64.media.tumblr.com/tumblr_me5qsgz0G01r52dl9.gif)
