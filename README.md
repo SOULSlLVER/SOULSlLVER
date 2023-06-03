@@ -35,5 +35,5 @@ my **best buddies** are *jay* *gok(nba)* goop and kitt fr!!!1111! 💥💥❗�
 ![alt text](https://i.imgur.com/pf7nt2U.png)  ![hi](https://i.imgur.com/epp3DE6.png) ![a](https://i.imgur.com/QNYIda6.gif) ![animal crossin](https://i.imgur.com/cszjpln.png) ![a](https://i.imgur.com/QYsbuIp.png) ![img](https://i.imgur.com/j3AQNJv.gif) ![p](https://i.imgur.com/PlzvNRV.png) ![rael](https://i.imgur.com/YGRGfay.gif) 
 
 
-### update number two i forgor to put a date in my last update ur gonna get fuckin updates idc if u read them may 30 ponytowners r cooked 🥓
+### update number three 3 june COOLGUY43 WHO ARE YOU!!!!!!!! I NEED TO KNOW IM DYING OF CURIOUSITY
 
