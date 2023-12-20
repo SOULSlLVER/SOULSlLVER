@@ -14,7 +14,7 @@ I like the following media ![vaporeon](https://64.media.tumblr.com/tumblr_ltv0jk
 
 ![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png) every pokemon game ![jessie..](https://64.media.tumblr.com/tumblr_me5qsoHzmU1r52dl9.gif) ![pikachu](https://64.media.tumblr.com/tumblr_me5po1kyXY1r52dl9.gif) ![JAMES!!](https://64.media.tumblr.com/tumblr_me5qsgz0G01r52dl9.gif)
 
-![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png) minecraft
+![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png) YUGIOHH!!!
 
 ![ball](https://64.media.tumblr.com/tumblr_lxkulmRLMi1r2nnw5.png) parrapa the rapper ![s](http://i122.photobucket.com/albums/o260/mhilka/minigifs/fetch_048.gif)
 
