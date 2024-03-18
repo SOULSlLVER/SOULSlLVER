@@ -9,3 +9,4 @@ my name is Soul or Silver click on my rentry for more information!! (other than 
 ![image](https://enchantments.carrd.co/assets/images/gallery07/8b17a9ca.gif?v=7116bf41) splatoon ![image](https://enchantments.carrd.co/assets/images/gallery16/cc7536f3.gif?v=7116bf41)
 
  ![image](https://enchantments.carrd.co/assets/images/gallery19/c63c7570.gif?v=7116bf41) there are more but these are the main ones
+ last thing always feel free to interact shit gets boring if people dont,,, though i find talking a little hard ill get there,, possibly,,probably
